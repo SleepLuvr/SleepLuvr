@@ -1,16 +1,30 @@
-## Hi there 👋
+<img src="./eb055571594ca864bc214844e6392dfd.jpg" width="300">
 
-<!--
-**SleepLuvr/SleepLuvr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"><b>𝓑𝓾𝓭𝓭𝔂 ( ´ ▽ ` )ﾉ.</b></p>
 
-Here are some ideas to get you started:
+ᴍʏ ʙᴇsᴛɪᴇs/ᴘᴏᴏᴋɪᴇs/ʙᴇsᴛ ғʀ:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+━━━━━━━━━━━━━━
+
+- ᴍᴇᴡ: sʜᴇ/ʜᴇʀ
+- ᴋᴇɪᴄᴏ: ᴛʜᴇʏ/ᴛʜᴇᴍ
+- ᴡᴇʏ: ʜᴇ/ᴛʜᴇʏ
+- ᴄᴀᴋᴇ: ᴛʜᴇʏ/ᴛʜᴇᴍ
+- sʜɪɴ: sʜᴇ/ʜᴇʀ
+- sᴇɴ: sʜᴇ/ʜᴇʀ
+- ᴋᴇᴠɪɴ: ᴛʜᴇʏ/ᴛʜᴇᴍ
+- ᴡʟ: ᴛʜᴇʏ/ᴛʜᴇᴍ
+
+━━━━━━━━━━━━━━
+<div align="center">
+
+👻 ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
+
+- ᴄᴀʟʟ ᴍᴇ ғᴜᴢ ᴏʀ ᴢᴀɴʏʏ!
+- ʙᴏʏ ᴏʀ ɢɪʀʟ? ɪᴅғᴋ ᴛ_ᴛ .
+- ᴛʀᴀɴs - ʙɪ ^_^
+- ᴍᴀɪɴ ғᴀɴᴅᴏᴍs: ᴄʀᴋ, ᴄʀʏ ᴏғ ғᴇᴀʀ, ᴅᴀɴᴅʏ ᴡᴏʀʟᴅ, ғsᴋ, ᴜɴsᴛᴀʙʟᴇ sᴍᴘ, ᴍᴇɢᴀ sᴍᴘ, ᴠ.ᴠ...
+
+(´－ω－)💤
+
+</div>
