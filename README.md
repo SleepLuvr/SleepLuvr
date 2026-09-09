@@ -7,12 +7,12 @@
 
 all my pookies! ・∇・ !
 </p>
-━━━━━━☆━━━━━━━
+━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━
 
 (@￣□￣@;)！
 
 <img src="06aa064bbdcf95c41bc9c4320424b832.jpg" width="400" height="200">
-━━━━━━☆━━━━━━━━
+━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━━
 <div align="center">
 
 👻 ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
@@ -32,5 +32,8 @@ all my pookies! ・∇・ !
   <i><font color="#FF6B6B">' 𝑖 𝑙𝑜𝑣𝑒 𝑦𝑜𝑢, 𝑚𝑦 𝑙𝑜𝑣𝑒♡ '</font></i>
 </p>
 <p align="center">
-  ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡ ♡
+  <img src="20260909_134845.gif" width="300">
 </p>
+<p align="center">
+  <sub><i>i love you</i></sub>
+</p><sub><i>Fuz - Zan</i></sub>
