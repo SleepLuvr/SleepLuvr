@@ -35,5 +35,5 @@ all my pookies! ・∇・ !
   <img src="20260909_134845.gif" width="300">
 </p>
 <p align="center">
-  <sub><i>i love you</i></sub>
+  <sub><i>'GRRRA! I HATE EVERYTHING! THEY MADE ME HAVE A BAD DAY!!I HATE U! I HATE EVERYBODY!!</i></sub>
 </p><sub><i>Fuz - Zan</i></sub>
