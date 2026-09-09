@@ -12,6 +12,7 @@ all my pookies! ・∇・ !
 (@￣□￣@;)！
 
 <img src="06aa064bbdcf95c41bc9c4320424b832.jpg" width="400" height="200">
+
 ━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━━
 <div align="center">
 
@@ -35,5 +36,5 @@ all my pookies! ・∇・ !
   <img src="20260909_134845.gif" width="300">
 </p>
 <p align="center">
-  <sub><i>'GRRRA! I HATE EVERYTHING! THEY MADE ME HAVE A BAD DAY!!I HATE U! I HATE EVERYBODY!!</i></sub>
+  <sub><i>'i wanna be yours'</i></sub>
 </p><sub><i>Fuz - Zan</i></sub>
