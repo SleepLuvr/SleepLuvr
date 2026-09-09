@@ -9,9 +9,9 @@ all my pookies! ・∇・ !
 </p>
 ━━━━━━☆━━━━━━━
 
-(@￣□￣@;)！！
+(@￣□￣@;)！
 
-
+<img src="06aa064bbdcf95c41bc9c4320424b832.jpg" width="400" height="200">
 ━━━━━━☆━━━━━━━━
 <div align="center">
 
