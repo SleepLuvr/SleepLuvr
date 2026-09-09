@@ -2,7 +2,7 @@
 <img src="./dc81211edabbb1eff6379b39ad8b0e20.jpg" width="300">
 
 <p align="center">
-  <i><font color="#F6E7A1">𝑀𝑦 best: @WH1wwpST4F</font></i>
+  <i><font color="#F6E7A1">𝑀𝑦 best: @WH1wwpST4F , @Shincyu , @cake , @Senji </font></i>
 </p>
 
 all my pookies! ・∇・ !
