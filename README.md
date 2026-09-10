@@ -2,7 +2,7 @@
 <img src="./dc81211edabbb1eff6379b39ad8b0e20.jpg" width="300">
 
 <p align="center">
-  <i><font color="#F6E7A1">𝑀𝑦 best: @WH1wwpST4F , @Shincyu , @cake , @Senji </font></i>
+  <i><font color="#F6E7A1">𝑀𝑦 best: the people in my Discord group</i>
 </p>
 
 all my pookies! ・∇・ !
@@ -30,11 +30,11 @@ all my pookies! ・∇・ !
 </div>
 <img src="./eb77e35d15a8bc69d12c857cb345aa72.jpg" width="300">
 <p align="center">
-  <i><font color="#FF6B6B">' 𝑖 𝑙𝑜𝑣𝑒 𝑦𝑜𝑢, 𝑚𝑦 𝑙𝑜𝑣𝑒♡ '</font></i>
+  <i><font color="#FF6B6B">' 𝑖 𝑙𝑜𝑣𝑒 𝑦𝑜𝑢, 𝑚𝑦 partner♡ '</font></i>
 </p>
 <p align="center">
   <img src="20260909_134845.gif" width="300">
 </p>
 <p align="center">
   <sub><i>'i wanna be yours'</i></sub>
-</p><sub><i>Fuz - Zan</i></sub>
+</p><sub><i>Fuz - Weys</i></sub>
