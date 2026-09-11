@@ -1,5 +1,5 @@
 <img src="./af5c9db4a0fee98e0393ff98a61b0fa1b1c14468.png" width="300">
-<img src="./dc81211edabbb1eff6379b39ad8b0e20.jpg" width="300">
+<img src="./a1a64b6bc96031eee4f74fda80447867.gif" width="300">
 
 <p align="center">
   <i><font color="#F6E7A1">𝑀𝑦 best: the people in my Discord group</i>
@@ -28,7 +28,7 @@ all my pookies! ・∇・ !
 (´－ω－)💤
 
 </div>
-<img src="./eb77e35d15a8bc69d12c857cb345aa72.jpg" width="300">
+<img src="./7f8fa322015c30355807c503260ba38c.jpg" width="300">
 <p align="center">
   <i><font color="#FF6B6B">' 𝑖 𝑙𝑜𝑣𝑒 𝑦𝑜𝑢, 𝑚𝑦 partner♡ '</font></i>
 </p>
