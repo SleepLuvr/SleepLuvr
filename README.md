@@ -1,5 +1,4 @@
 <img src="./af5c9db4a0fee98e0393ff98a61b0fa1b1c14468.png" width="300">
-<img src="./a1a64b6bc96031eee4f74fda80447867.gif" width="300">
 
 <p align="center">
   <i><font color="#F6E7A1">𝑀𝑦 best: the people in my Discord group</i>
@@ -19,9 +18,9 @@ all my pookies! ・∇・ !
 👻 ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
 
 - ᴄᴀʟʟ ᴍᴇ ғᴜᴢ ᴏʀ ᴀɴʏʏ!
-- ʙᴏʏ / man ok ᴛ_ᴛ .
-- ᴛʀᴀɴs - ʙɪ ^_^
-- ᴍᴀɪɴ ғᴀɴᴅᴏᴍs: ᴄʀᴋ, ᴄʀʏ ᴏғ ғᴇᴀʀ, ᴅᴀɴᴅʏ ᴡᴏʀʟᴅ, ғsᴋ, ᴜɴsᴛᴀʙʟᴇ sᴍᴘ, ᴍᴇɢᴀ sᴍᴘ, ᴠ.ᴠ...
+- he/him ! ʙᴏʏ / man ok ᴛ_ᴛ 
+- Pan - ʙɪ ^_^
+- ᴍᴀɪɴ ғᴀɴᴅᴏᴍs: ᴄʀᴋ, ᴄʀʏ ᴏғ ғᴇᴀʀ, ᴅᴀɴᴅʏ ᴡᴏʀʟᴅ, ғsᴋ, ᴜɴsᴛᴀʙʟᴇ sᴍᴘ, ᴍᴇɢᴀ sᴍᴘ, homestuck, ᴠ.ᴠ...
 - Im very friendly! I always welcome you!
 - i love my life n myself!
 
@@ -37,4 +36,4 @@ all my pookies! ・∇・ !
 </p>
 <p align="center">
   <sub><i>'i wanna be yours'</i></sub>
-</p><sub><i>Fuz - Weys</i></sub>
+</p><sub><i>Andyy☆</i></sub>
