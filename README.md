@@ -1,5 +1,5 @@
 <img src="./af5c9db4a0fee98e0393ff98a61b0fa1b1c14468.png" width="300">
-
+<img src="./0963fcd7ae2beb770b34fd78f63ead5c.jpg" width="300">
 <p align="center">
   <i><font color="#F6E7A1">𝑀𝑦 best: the people in my Discord group</i>
 </p>
@@ -8,14 +8,14 @@ all my pookies! ・∇・ !
 </p>
 ━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━
 
-(@￣□￣@;)！
+o(*⌒―⌒*)o ☆
 
 <img src="06aa064bbdcf95c41bc9c4320424b832.jpg" width="400" height="200">
 
 ━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━━
 <div align="center">
 
-👻 ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
+♧ ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
 
 - ᴄᴀʟʟ ᴍᴇ ғᴜᴢ ᴏʀ ᴀɴʏʏ!
 - he/him ! ʙᴏʏ / man ok ᴛ_ᴛ 
@@ -36,4 +36,4 @@ all my pookies! ・∇・ !
 </p>
 <p align="center">
   <sub><i>'i wanna be yours'</i></sub>
-</p><sub><i>Andyy☆</i></sub>
+</p><sub><i>Andyy - ' IM REALLY LOVE MY CRUSH/POOKIE♡!</i></sub>
