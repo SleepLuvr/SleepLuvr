@@ -36,4 +36,4 @@ o(*⌒―⌒*)o ☆
 </p>
 <p align="center">
   <sub><i>'i wanna be yours'</i></sub>
-</p><sub><i>Andyy - ' IM REALLY LOVE MY CRUSH/POOKIE♡!</i></sub>
+</p><sub><i>Andyy - ' sleeping♡!</i></sub>
