@@ -1,39 +1,23 @@
-<img src="./af5c9db4a0fee98e0393ff98a61b0fa1b1c14468.png" width="300">
-<img src="./0963fcd7ae2beb770b34fd78f63ead5c.jpg" width="300">
 <p align="center">
+  <img src="./695736e97c81ea497bd9072917b817cf.gif" width="300">
+</p>
   <i><font color="#F6E7A1">𝑀𝑦 best: the people in my Discord group</i>
-</p>
-
-all my pookies! ・∇・ !
-</p>
-━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━
-
-o(*⌒―⌒*)o ☆
-
-<img src="06aa064bbdcf95c41bc9c4320424b832.jpg" width="400" height="200">
 
 ━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━━
 <div align="center">
 
 ♧ ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
 
-- ᴄᴀʟʟ ᴍᴇ mazyi!
-- he/him ! ʙᴏʏ / man ok ᴛ_ᴛ 
-- Pan - ʙɪ ^_^
-- ᴍᴀɪɴ ғᴀɴᴅᴏᴍs: ᴄʀᴋ, ᴄʀʏ ᴏғ ғᴇᴀʀ, ᴅᴀɴᴅʏ ᴡᴏʀʟᴅ, ғsᴋ, ᴜɴsᴛᴀʙʟᴇ sᴍᴘ, ᴍᴇɢᴀ sᴍᴘ, homestuck, ᴠ.ᴠ...
-- Im very friendly! I always welcome you!
+- ᴄᴀʟʟ ᴍᴇ luzj ;
+- he/him ! Im very friendly! I always welcome you!
 - i love my life n myself!
 
-(´－ω－)💤
-
-</div>
-<img src="./7f8fa322015c30355807c503260ba38c.jpg" width="300">
 <p align="center">
-  <i><font color="#FF6B6B">' 𝑖 𝑙𝑜𝑣𝑒 𝑦𝑜𝑢, 𝑚𝑦 partner♡ '</font></i>
+  <img src="./93e69a125e4307b5b8677b17ce44611e.gif" width="300">
+<p align="center">
+  <img src="e36e094bc2520b5f6d75f5d5f2afc662.jpg" width="300">
+</p>
 </p>
 <p align="center">
-  <img src="20260909_134845.gif" width="300">
-</p>
-<p align="center">
-  <sub><i>'i wanna be yours'</i></sub>
-</p><sub><i>Vealy DNI DNI! BRUH ! !</i></sub>
+  <sub><i>'idk ?'</i></sub>
+</p><sub><i>Vealy / M DNI DNI! BRUH ! !</i></sub>
