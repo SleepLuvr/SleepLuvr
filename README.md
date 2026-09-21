@@ -6,16 +6,17 @@
 ━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━━
 <div align="center">
 
-♧ ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
+ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
 
-- ᴄᴀʟʟ ᴍᴇ luzj ;
-- he/him ! Im very friendly! I always welcome you!
-- i love my life n myself!
+- 𝓒𝓪𝓵𝓵 𝓶𝓮 𝓛𝓾𝓳𝓲𝔃 ;
+-  𝓗𝓮 / 𝓱𝓲𝓶 
+𝓘 𝓪𝓶 𝓯𝓻𝓲𝓮𝓷𝓭𝓵𝔂 𝓪𝓷𝓭 𝓪𝓵𝔀𝓪𝔂𝓼 𝔀𝓮𝓵𝓬𝓸𝓶𝓮 
 
-<p align="center">
-  <img src="./93e69a125e4307b5b8677b17ce44611e.gif" width="300">
-<p align="center">
-  <img src="e36e094bc2520b5f6d75f5d5f2afc662.jpg" width="300">
+<img src="40cd277a15a23589f03a2db7f51c1ac6.jpg" width="100">
+
+𝓣𝓱𝓮 𝓯𝓲𝓻𝓼𝓽 𝓽𝓲𝓶𝓮 𝓲 𝓶𝓮𝓽 𝔂𝓸𝓾 — 𝓲 𝔀𝓪𝓼 𝓼𝓸 𝓱𝓪𝓹𝓹𝔂 ; 𝔂𝓸𝓾'𝓻𝓮 𝓼𝓸 𝓵𝓸𝓿𝓮𝓵𝔂, 𝔀𝓮'𝓻𝓮 𝓪𝓵𝔀𝓪𝔂𝓼 𝓽𝓸𝓰𝓮𝓽𝓱𝓮𝓻, 𝓲 𝓵𝓲𝓴𝓮 𝔂𝓸𝓾 @Shincyu
+
+<img src="e36e094bc2520b5f6d75f5d5f2afc662.jpg" width="300">
 </p>
 </p>
 <p align="center">
