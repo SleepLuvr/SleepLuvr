@@ -1,7 +1,4 @@
-" / EWW?! / "
-<p align="center">
-  <img src="./695736e97c81ea497bd9072917b817cf.gif" width="300">
-  gg fucking ez🫢
+ gg fucking ez🫢
   
   You're overreacting and making things worse ?
   
@@ -21,6 +18,8 @@ Do you like me😍💥🤯🤫? Why do you keep bringing that up and making a bi
 
 I laughed out loud !!!!😳😳💥💥💥💥🥶🥶
 
-So what now? Since you stopped hanging out with me, I'm living better! I care more about my friends, builds trust and earns more people's affection, and I don't tease them as much as you did, Augh~ 🥶😱😍💥🤩🤑😂
+So what now? I'm living better! I care more about my friends, builds trust and earns more people's affection, And I don't joke excessively in a way that makes them as uncomfortable as you do, Augh 🥶😱😍💥🤩🤑😂
 
 Focus on the present, Bringing up the past just to attract haters for me? Thanks! but I don't need it~❤️‍🔥❤️‍🔥❤️‍🔥❤️‍🔥🤑🤑🤑🥶🥶
+
+Ok, And don't drag her into this, ok? That's amazing, Even my friends don't like your attitude. Do you really think you haven't done anything wrong, huhh? The joke was so excessive that it made people uncomfortable, So when someone else points it out, you get angry and walk away? omg~ Many of my friends don't even like you, haiz~ And don't try to cause trouble, make things worse, or turn it into a big problem, nobody will bother you then 🤡
