@@ -14,9 +14,9 @@ Focus on your studies, don't cause any more trouble just to attract attention an
 
 Don't get angry like a madwoman when I say that, I'm trembling~~😍😍🥶
 
-Do you like me😍💥🤯🤫? Why do you keep bringing that up and making a big deal out of it? 🥶🙌
+Do you like me😍💥🤯🤫? Why do you keep bringing that up over and over again?🥶🙌
 
-I laughed out loud !!!!😳😳💥💥💥💥🥶🥶
+I laughed out loud !!!!😳😳💥💥💥🥶
 
 So what now? I'm living better! I care more about my friends, builds trust and earns more people's affection, And I don't joke excessively in a way that makes them as uncomfortable as you do, Augh 🥶😱😍💥🤩🤑😂
 
