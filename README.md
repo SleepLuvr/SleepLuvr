@@ -1,4 +1,4 @@
- gg fucking ez🫢
+R
   
   You're overreacting and making things worse ?
   
@@ -23,3 +23,5 @@ So what now? I'm living better! I care more about my friends, builds trust and e
 Focus on the present, Bringing up the past just to attract haters for me? Thanks! but I don't need it~❤️‍🔥❤️‍🔥❤️‍🔥❤️‍🔥🤑🤑🤑🥶🥶
 
 Ok, And don't drag her into this, ok? That's amazing, Even my friends don't like your attitude. Do you really think you haven't done anything wrong, huhh? The joke was so excessive that it made people uncomfortable, So when someone else points it out, you get angry and walk away? omg~ Many of my friends don't even like you, haiz~ And don't try to cause trouble, make things worse, or turn it into a big problem, nobody will bother you then 🤡
+
+<img src="36388eb93554088d10910a8dbe5fcb13.jpg" width="300">
