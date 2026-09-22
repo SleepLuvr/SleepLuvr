@@ -1,26 +1,22 @@
 " / EWW?! / "
 <p align="center">
   <img src="./695736e97c81ea497bd9072917b817cf.gif" width="300">
-</p>
-  <i><font color="#F6E7A1">𝑀𝑦 best: the people in my Discord group</i>
+  gg fucking ez🫢
+  
+  You're overreacting and making things worse ?
+  
+  Are you trying to attract more haters for me? 🥶🙌💥💥
+  
+Oh my god, I'm trembling with fear of you! 🥺🥺🥺😱😱😱😱😍😍😍😍🥶🥶
 
-━━━━━━‧︵‿₊୨ᰔ୧₊‿︵‧━━━━━━━━
-<div align="center">
+Why not just forget about it and live a normal life instead of constantly making a fool of yourself or causing a bigger fuss? 🙌💥
 
-ᴀ ʟɪᴛᴛʟᴇ ᴀʙᴏᴜᴛ ᴍᴇ :
+Are you feeling down? I'm not betraying my current friends; I'm still making them happy and helping them have better lives🥶🥺🙄
 
-- 𝓒𝓪𝓵𝓵 𝓶𝓮 𝓛𝓾𝓳𝓲𝔃 ;
--  𝓗𝓮 / 𝓱𝓲𝓶 
-𝓘 𝓪𝓶 𝓯𝓻𝓲𝓮𝓷𝓭𝓵𝔂 𝓪𝓷𝓭 𝓪𝓵𝔀𝓪𝔂𝓼 𝔀𝓮𝓵𝓬𝓸𝓶𝓮 
+Focus on your studies, don't cause any more trouble just to attract attention and make more people hate me, dumbass 😢🫢🥺
 
-<img src="40cd277a15a23589f03a2db7f51c1ac6.jpg" width="100">
+Don't get angry like a madwoman when I say that, I'm trembling~~😍😍🥶
 
-𝓣𝓱𝓮 𝓯𝓲𝓻𝓼𝓽 𝓽𝓲𝓶𝓮 𝓲 𝓶𝓮𝓽 𝔂𝓸𝓾 — 𝓲 𝔀𝓪𝓼 𝓼𝓸 𝓱𝓪𝓹𝓹𝔂 ; 𝔂𝓸𝓾'𝓻𝓮 𝓼𝓸 𝓵𝓸𝓿𝓮𝓵𝔂, 𝔀𝓮'𝓻𝓮 𝓪𝓵𝔀𝓪𝔂𝓼 𝓽𝓸𝓰𝓮𝓽𝓱𝓮𝓻, 𝓲 𝓵𝓲𝓴𝓮 𝔂𝓸𝓾 
-shincyu (˶ᵔ ᵕ ᵔ˶)
+Do you like me😍💥🤯🤫? Why do you keep bringing that up and making a big deal out of it? 🥶🙌
 
-<img src="e36e094bc2520b5f6d75f5d5f2afc662.jpg" width="300">
-</p>
-</p>
-<p align="center">
-  <sub><i>'idk ?'</i></sub>
-</p><sub><i>Vealy / M DNI DNI! BRUH ! !</i></sub>
+I laughed out loud !!!!😳😳💥💥💥💥🥶🥶
