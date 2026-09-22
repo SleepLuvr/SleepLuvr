@@ -24,4 +24,10 @@ Focus on the present, Bringing up the past just to attract haters for me? Thanks
 
 Ok, And don't drag her into this, ok? That's amazing, Even my friends don't like your attitude. Do you really think you haven't done anything wrong, huhh? The joke was so excessive that it made people uncomfortable, So when someone else points it out, you get angry and walk away? omg~ Many of my friends don't even like you, haiz~ And don't try to cause trouble, make things worse, or turn it into a big problem, nobody will bother you then 🤡
 
+At least I care more, am happier, and respect my friends' feelings than you do now~😘
+
+You don't like to let things slide, you always like to overreact and then complain a lot 😘😘🥶🤯🥺
+
+Who they hang out with is their business, why are you interfering? 🤑😍
+
 <img src="36388eb93554088d10910a8dbe5fcb13.jpg" width="300">
