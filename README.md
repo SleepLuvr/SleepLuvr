@@ -22,10 +22,10 @@ So what now? I'm living better! I care more about my friends, builds trust and e
 
 Focus on the present, Bringing up the past just to attract haters for me? Thanks! but I don't need it~❤️‍🔥❤️‍🔥❤️‍🔥❤️‍🔥🤑🤑🤑🥶🥶
 
-Ok, And don't drag her into this, ok? That's amazing, Even my friends don't like your attitude. Do you really think you haven't done anything wrong, huhh? The joke was so excessive that it made people uncomfortable, So when someone else points it out, you get angry and walk away? omg~ Many of my friends don't even like you, haiz~ And don't try to cause trouble, make things worse, or turn it into a big problem, nobody will bother you then 🤡
+Ok, And don't drag her into this, ok? That's amazing, Even my friends don't like your attitude. Do you really think you haven't done anything wrong, huhh? The joke was so ridiculous that she was annoyed by it. So when someone else points it out, you get angry and walk away? omg~ Many of my friends don't even like you, haiz~ And don't try to cause trouble, make things worse, or turn it into a big problem, nobody will bother you then 🤡
 
 At least I care more, am happier, and respect my friends' feelings than you do now~😘
 
-Who they hang out with is their business, why are you interfering? I didn't do anything to them, they like me, and I like them too. Are you forbidding us from being friends? As long as I don't treat them badly, that's fine? what's wrong with that?🤑😍
+Who they hang out with is their business, why are you interfering? I didn't do anything to them, they are fond of me, and I am fond of them too. Are you forbidding us from being friends? As long as I don't treat them badly, that's fine? what's wrong with that?🤑😍
 
 <img src="36388eb93554088d10910a8dbe5fcb13.jpg" width="300">
