@@ -26,8 +26,6 @@ Ok, And don't drag her into this, ok? That's amazing, Even my friends don't like
 
 At least I care more, am happier, and respect my friends' feelings than you do now~😘
 
-You don't like to let things slide, you always like to overreact and then complain a lot 😘😘🥶🤯🥺
-
-Who they hang out with is their business, why are you interfering? 🤑😍
+Who they hang out with is their business, why are you interfering? I didn't do anything to them, they like me, and I like them too. Are you forbidding us from being friends? As long as I don't treat them badly, that's fine? what's wrong with that?🤑😍
 
 <img src="36388eb93554088d10910a8dbe5fcb13.jpg" width="300">
