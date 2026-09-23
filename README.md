@@ -1,17 +1,11 @@
-ok 
+<img width="900" height="140" alt="1000001189" src="https://github.com/user-attachments/assets/aded68ef-0987-417f-a191-1b762d7752cc" />
 
-From now on, let's forget about each other, Thanks for the gift, just enjoy your life, I have nothing more to say, that's it, we're not connected and we don't even know each other anymore
+okay sure! i know
 
-Pity? Oh, ok, bro
+૮ ˶ˆ꒳ˆ˵ ა
 
-I don't want to make a big deal out of this anymore. Let's end it here, and you won't know me, and I won't know you, that's all
+Oh hi!
 
-So, I would like to correct myself and apologize to you, ok?
+I enjoy listening to music, how about you? :D
 
-I'm bad to you, I know, I behaved wrongly, I know
-
-You can say whatever you want, I won't say anything more to avoid further trouble
-
-And let's end it here. We don't know each other anymore. You can say whatever you want, idk
-
-I just want to play and chat with everyone right now, nothing else, you can do whatever you want, sorry.
+<img width="735" height="245" alt="1000001196" src="https://github.com/user-attachments/assets/f368894e-e422-4f82-9b29-a306e79b4fd4" />
