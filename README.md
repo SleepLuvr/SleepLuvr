@@ -5,5 +5,3 @@ From now on, let's forget about each other, Thanks for the gift, just enjoy your
 Pity? Oh, ok, bro🤲
 
 I don't want to make a big deal out of this anymore. Let's end it here, and you won't know me, and I won't know you, that's all
-
-<img src="36388eb93554088d10910a8dbe5fcb13.jpg" width="300">
