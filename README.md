@@ -1,3 +1,4 @@
+/ oh alr, I forgot /
 <img width="900" height="140" alt="1000001189" src="https://github.com/user-attachments/assets/aded68ef-0987-417f-a191-1b762d7752cc" />
 
 okay sure! i know
